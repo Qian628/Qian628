@@ -1,4 +1,4 @@
-## Supervised Research Projects
+## Research Projects
 
 Selected research projects developed under my leadership or supervision.
 
